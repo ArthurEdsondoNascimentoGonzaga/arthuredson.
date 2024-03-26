@@ -2,6 +2,6 @@
 
 Eu sou Arthur Edson eu sou um estudante aprimorando meu desejo de estudar cada dia vez mais
 
-- 🚀 Atualmente estou aprendendo:phyton,html
+- 🚀 Atualmente estou aprendendo:phyton,html,desenvolvimento de sistemas
 - 💬 Pergunte-me sobre:tudo
 - 📣 Nós podemos falar em:portugues,inglês
