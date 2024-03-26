@@ -1,4 +1,4 @@
-# [Arthur Edson] <img src=https://th.bing.com/th/id/R.f962e726da9a190a7e638f53fe4ea5ac?rik=3Xei037%2b5wMiYg&pid=ImgRaw&r=0 width="500px">
+# [Arthur Edson] <img src=https://pa1.narvii.com/6776/6690e616a9fdd1031b5dc55d7c831c3fd0a1a84a_hq.gif width="500px">
 
 Eu sou <strong>Seu Nome</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
